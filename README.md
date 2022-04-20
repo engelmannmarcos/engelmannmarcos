@@ -1,0 +1,2 @@
+- Olá, eu sou o Marcos
+- Sou estudante, procuro aprender a programar
