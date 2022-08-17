@@ -1,2 +1,3 @@
-- 👋 Ola, sou o Marcos
-- 🌱 
+Sou o Marcos 🍎​
+Sinuquinha Show? 🎱​
+Curto Viajar 🗺️​
