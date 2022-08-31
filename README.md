@@ -4,4 +4,4 @@ Sinuquinha Show? 🎱​
 
 Curto Viajar 🗺️​
 
-Sonho 🇧🇷🛫🛬🇦🇺
+Sonho 🇧🇷🛫
