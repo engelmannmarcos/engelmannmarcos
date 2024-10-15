@@ -1,5 +1,3 @@
-Sou o Marcos 🍎​
-
-Sinuquinha Show? 🎱​
-
-Curto Viajar 🗺️​
+Marcos
+Paraná
+Não Sei
